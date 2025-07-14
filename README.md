@@ -1,4 +1,4 @@
-## Hi there 👋
+## Hi there 🧮 ⛳️ 
 -------------------------------------------------------------
 About Me:
 - I am an upcoming Master's student at U Chicago studying Financial Math
